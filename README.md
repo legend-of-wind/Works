@@ -1,3 +1,4 @@
 # animation-with-AI
 
-It's time to make another renaissance
+It's time to start another renaissance.
+To make a harder life.
